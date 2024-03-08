@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @crossing_limits.
 - 👀 I’m interested in a thousand things. 
-- 🌱 I’m currently learning ...coding. UwU
+- 🌱 I’m currently learning ...coding. 
 - 💞️ I’m looking forward to make a good game.
 - 📫 How to reach me: vmsarchisha@gmail.com
 
